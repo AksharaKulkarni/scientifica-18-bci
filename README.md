@@ -1,7 +1,7 @@
 # Come see a projection of you (BCI)
-## Scientifica 18, National Public School, Bengaluru
+## Scientifica '18, National Public School, Bengaluru
 
-Members of this group are:
+We are class 11 students of NPS. Members of this group are:
 * Akshara
 * Aradana
 * Arunima
