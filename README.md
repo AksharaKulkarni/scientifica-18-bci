@@ -1,5 +1,5 @@
 # Come see a projection of you (BCI)
-## Scientifica 18, National Public School, Bangalor
+## Scientifica 18, National Public School, Bengaluru
 
 Members of this group are:
 * Akshara
